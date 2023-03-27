@@ -1,4 +1,4 @@
 ### Hi there
-I'm currently working on
-I'm currently learning
-How to reach me..
+I'm currently working on as Senior Technical Lead
+
+
